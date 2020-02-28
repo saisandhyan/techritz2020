@@ -1,1 +1,1 @@
-# techritz2020 vignan's women number
+# techritz2020 vignan's women fest
